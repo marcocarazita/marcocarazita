@@ -1,26 +1,3 @@
-Hi i'm Marco👋
+Francesco Graziani, detto Ciccio (Subiaco, 16 dicembre 1952), è un dirigente sportivo, ex allenatore di calcio ed ex calciatore italiano, di ruolo attaccante. Campione del mondo con la nazionale italiana nel 1982, con 122 gol totali nel Torino si trova al 7º posto della classifica dei marcatori del club granata dietro a Valentino Mazzola (123).
 
-
-
-- 🔭 I’m currently working on
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
------BEGIN PGP PUBLIC KEY BLOCK-----
-
-mDMEYhduMxYJKwYBBAHaRw8BAQdANTNPT2vdIp+zPflPYllpHbU/04/DQmyNzD3t
-CVv9uu60BEphY2uImgQTFgoAQhYhBJubv8mAzhpf73YIqtd9bdBt4g83BQJiF24z
-AhsDBQkDwl39BQsJCAcCAyICAQYVCgkICwIEFgIDAQIeBwIXgAAKCRDXfW3QbeIP
-N+jpAP48L4yjwypGR9Jzi9Mz7yCd8YuuPVd/DyFyoVYolhfB/wEAmZzpOF18v3Xp
-sqpsNQMK3PwpJzJPqDJqMvBL2tfMQg+4OARiF24zEgorBgEEAZdVAQUBAQdAAPqo
-LR+b5SXmWNOuT80071YJ6bAsZ+wURJsuUHCm2DUDAQgHiH4EGBYKACYWIQSbm7/J
-gM4aX+92CKrXfW3QbeIPNwUCYhduMwIbDAUJA8Jd/QAKCRDXfW3QbeIPN+0OAP9R
-zt7aYKwn+3qpE822IEXXhVJ0Ax1ZVB3MuuwtzzJRjAEAq3aWlOdldeyQ5ResxBzm
-2Sqn7EAJj4l8h8bIOaC55Q4=
-=Frdw
------END PGP PUBLIC KEY BLOCK-----
+È padre di Gabriele, anch'egli ex calciatore italiano, di ruolo attaccante e in seguito dirigente sportivo.
